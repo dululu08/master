@@ -1,6 +1,6 @@
-测试数据
+Test data
 
-Selling "health cards" and collecting "prepaid fees" promised not only to book pension beds but also to enjoy high interest dividends. As a result," tearing down the east wall to make up the West wall "can not be followed by Thunder and running away. 这类问题已引起人们广泛关注。
+Selling "health cards" and collecting "prepaid fees" promised not only to book pension beds but also to enjoy high interest dividends. As a result," tearing down the east wall to make up the West wall "can not be followed by Thunder and running away. Such problems have aroused widespread concern.
 
 　　养老产品披上金融外衣后，极具迷惑性，更具危害性。 一些黑心养老机构承诺养老服务却连养老基地也是假造、承诺利息返点却绝口不提投资风险……在掏空老年人的“钱袋子”的同时，为了更快“钱生钱”，甚至将资金投入高利贷等其他非法投资领域，危害全社会的和谐稳定。
 
